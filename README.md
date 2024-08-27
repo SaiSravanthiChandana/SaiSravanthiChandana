@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SaiSravanthiChandana
+- 👀 I’m interested in Solving DSA & Web development
+- 🌱 I’m currently improving my skills
+- 💞️ I’m looking to collaborate on open source projects.
+- 📫 How to reach me : saisravanthichandanasravi@gmail.com | SaiSravanthiChandana
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I love music and dance, and I'm currently exploring my passion for painting. I also enjoy participating in art exhibitions and cultural events!
